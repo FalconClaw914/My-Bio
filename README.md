@@ -6,4 +6,4 @@
 
 ╰┈➤ Im usually busy doing something when Im on Pony Town, I mainly just hop on to peoplewatch / use as a background for whatever Im doing, its like watching an ant farm.
 
-╰┈➤ I dont know what else to write here, if you want more info about me read my Carrd.
+╰┈➤ I dont know what else to write here, if you want more info about me read my Strawpage
